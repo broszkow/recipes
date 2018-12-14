@@ -38,3 +38,5 @@ A sha
 * Look for canned tomatoes in 'rich tomato juice'. They're a bit more expensive, but definitely worthwhile
 * Fresh basil and pepper are a must.
 * Try it with minced lamb
+## Serving suggestions
+A good choice for the holidays since it can be put together prior and then baked on the day of serving. 
